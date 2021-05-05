@@ -14,9 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-- 🔭 I’m currently working on my mind :smile: 
- I’m currently learning AI and looking to collaborate on any interesting projects.(AI preffered)🤔.
-
 Reach me at:
   [Google](mishranikku999@gmail.com)
   [LinkedIn](https://www.linkedin.com/in/nilanshu-ranjan-428135a2/)
